@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Sept52.github.io/rsschool-cv/cv
